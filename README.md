@@ -8,6 +8,9 @@
 
 |**DAY 1**| On the first day we visited the auditorium and firstly we listen to the incharge of TAC and Director of STEP GNE **DR.ARVIND DHINGRA**. After that we listen to the **Dean student welfare DR.PARMINDER SINGH** and at the last we interreacted with **CoE DR.HS RAI**. We again had a memorable day at the college.|
 
+![Screenshot_20240724_211109_Instagram](https://github.com/user-attachments/assets/e00b75c5-5bc1-4abc-900d-1547ca8de729)
+
+
 |**DAY 2**| On second day of induction program we were headed to classrooms where we intereacted with peers and they shared their experience, valuable knowledge with us. After that we attended the maths class where we did chapters like derivatives and integration.|
 
 |**DAY 3**| On the third day of induction program we firslty intereacted with **DR. RANDHIR SINGH** who instructed us about the github app and helped us to create github accounts. After him we listened to presitigous thoughts of **Dr. PYARE LAL**. Then **MR. SONY GOYAL** motivated us to be sucessfull in life. At last **MR.PANCHAM** delivered us beautiful message.|
