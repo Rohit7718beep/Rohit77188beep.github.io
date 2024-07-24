@@ -18,5 +18,18 @@
 
 |**DAY 7**| On the seventh day of our introduction program we firstly intereacted with **Er.kanwardeep Kalra** in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then **JASWINDER SINGH** helped us to clear some basic science concepts with ease and in a fun way. I wan indeed the happiest person in the auditorium as i was invited by him on the stage. He also awrded me a pencil as an award. He told me that he was completely impressed with my knowledge and intelligence. I wan indeed happy to listen this words from a well respected person of our society.
 
-|**DAY 8**| On the eighth day we had intereaction with respected **Dr.S.B Singh**  they told us to write 
+|**DAY 8**| On the eighth day we had intereaction with respected former principal**Dr.S.B Singh**  they told us to write the following things:-
+1:- OUR STRENGTH
+2:- OUR WEAKNESS
+3:- OUR DREAM IN LIFE
+4:- OUR FAVOURITE SPORT
+and many more things which helped to evaluate ourself. After him we intereacted with **Dr.Pushpinder Singh**. After that we were able to talk about sustainbility and we got a good message about sustainbility.|
+
+|**DAY 9**| On the nineth day we firstly had our MATHS CLASS at physics lab and so on we had our CHEMISTRY CLASS which was taken by **KARAN BHALLA SIR**. with his way of teaching we were able to dive in the deep sea of chemistry. then after the break students who were eligible for PMS were called out by the college authorities.|
+
+|**DAY 10*| On the tenth day we had **Mr.gouravdeep Singh** with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the presidnet of india. 
+ He shared his inspiring journey and i am pretty sure that if i get a chance to join his initiative i will definitely go for it. in the afternoon we were intereacted with Coordinator of **CML**,**Er.Lakhveer Singh** he told us about a portal **SWAYAM** from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there. He completely guided us to form an account on that portal and enroll or join a course. Then after the break we got to learn about the CAUSMIC CLUB of our college and we registered for this club.|
+
+ 
+
 
