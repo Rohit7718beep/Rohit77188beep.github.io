@@ -20,6 +20,8 @@
 
 |**DAY 4**| On the fourth day of induction program we had some activities related to quantative aptitude and english vocabulary. On this day we also had group discussion. 
 
+![Screenshot_20240724_213948_Instagram](https://github.com/user-attachments/assets/69432a6c-b82c-48f7-abed-31acd2e7171c)
+
 
 |**DAY 5**| On the fifth day of induction program we attended the maths class. After that we had our **UNIVERSAL HUMAN VALUES** and we were given an assignment by the teacher which we are required to submit as soon as possible. Then we had our **ENGLISH TEST**.
 
