@@ -13,6 +13,8 @@
 
 |**DAY 2**| On second day of induction program we were headed to classrooms where we intereacted with peers and they shared their experience, valuable knowledge with us. After that we attended the maths class where we did chapters like derivatives and integration.|
 
+![Screenshot_20240724_214700_Instagram](https://github.com/user-attachments/assets/cc9981a8-46ef-4bf4-8e61-60aaac1b5ece)
+
 
 
 |**DAY 3**| On the third day of induction program we firslty intereacted with **DR. RANDHIR SINGH** who instructed us about the github app and helped us to create github accounts. After him we listened to presitigous thoughts of **Dr. PYARE LAL**. Then **MR. SONY GOYAL** motivated us to be sucessfull in life. At last **MR.PANCHAM** delivered us beautiful message.|
