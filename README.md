@@ -27,6 +27,9 @@
 
 |**DAY 7**| On the seventh day of our introduction program we firstly intereacted with **Er.kanwardeep Kalra** in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then **JASWINDER SINGH** helped us to clear some basic science concepts with ease and in a fun way. I wan indeed the happiest person in the auditorium as i was invited by him on the stage. He also awrded me a pencil as an award. He told me that he was completely impressed with my knowledge and intelligence. I wan indeed happy to listen this words from a well respected person of our society.
 
+![Screenshot_20240724_210801_Instagram](https://github.com/user-attachments/assets/5e412cc5-ac24-4566-b3ed-0e970aaa72b0)
+
+
 |**DAY 8**| On the eighth day we had intereaction with respected former principal**Dr.S.B Singh**  they told us to write the following things:-
 1:- OUR STRENGTH
 2:- OUR WEAKNESS
