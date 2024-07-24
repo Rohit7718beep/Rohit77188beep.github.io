@@ -37,6 +37,9 @@
 4:- OUR FAVOURITE SPORT
 and many more things which helped to evaluate ourself. After him we intereacted with **Dr.Pushpinder Singh**. After that we were able to talk about sustainbility and we got a good message about sustainbility.|
 
+![Screenshot_20240724_210743_Instagram](https://github.com/user-attachments/assets/84f84950-101d-4a01-b40d-c61788cc93e5)
+
+
 |**DAY 9**| On the nineth day we firstly had our MATHS CLASS at physics lab and so on we had our CHEMISTRY CLASS which was taken by **KARAN BHALLA SIR**. with his way of teaching we were able to dive in the deep sea of chemistry. then after the break students who were eligible for PMS were called out by the college authorities.|
 
 |**DAY 10**| On the tenth day we had **Mr.gouravdeep Singh** with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the presidnet of india. 
