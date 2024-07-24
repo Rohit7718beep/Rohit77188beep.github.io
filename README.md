@@ -46,7 +46,7 @@ and many more things which helped to evaluate ourself. After him we intereacted 
 |**DAY 9**| On the nineth day we firstly had our MATHS CLASS at physics lab and so on we had our CHEMISTRY CLASS which was taken by **KARAN BHALLA SIR**. with his way of teaching we were able to dive in the deep sea of chemistry. then after the break students who were eligible for PMS were called out by the college authorities.|
 
 |**DAY 10**| On the tenth day we had **Mr.gouravdeep Singh** with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the presidnet of india. 
- He shared his inspiring journey and i am pretty sure that if i get a chance to join his initiative i will definitely go for it. in the afternoon we were intereacted with Coordinator of **CML**,**Er.Lakhveer Singh** he told us about a portal **SWAYAM** from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there. He completely guided us to form an account on that portal and enroll or join a course. Then after the break we got to learn about the CAUSMIC CLUB of our college and we registered for this club.|
+ He shared his inspiring journey and i am pretty sure that if i get a chance to join his initiative i will  go for it. in the afternoon we intereacted with Coordinator **CML**,**Er.Lakhveer Singh** he told us about a portal **SWAYAM** from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there. He completely guided us to form an account on that portal and enroll or join a course. Then after the break we got to learn about the CAUSMIC CLUB of our college and we registered for this club.|
 
  
 
