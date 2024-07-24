@@ -23,6 +23,9 @@
 
 |**DAY 5**| On the fifth day of induction program we attended the maths class. After that we had our **UNIVERSAL HUMAN VALUES** and we were given an assignment by the teacher which we are required to submit as soon as possible. Then we had our **ENGLISH TEST**.
 
+![Screenshot_20240724_212816_Instagram](https://github.com/user-attachments/assets/6d3382d1-f66d-4914-b3e5-85216f89e183)
+
+
 |**DAY 6**| On the sixth day of our induction program we first attended the **UNIVERSAL HUMAN CLASSES** in the morning. After that we had peer intereaction they taught us the basic of **CANVA** and taught us to create templates. In the afternoon, **DR. HARWINDER SINGH** motivated us to join NCC(NATIONAL CADET CORPS). Then **Er.JASVIR SINGH GREWAL** coordinator of **NSS** motivated us to join NSS. It was a nice day as we saw our campus more deeply.
 
 |**DAY 7**| On the seventh day of our introduction program we firstly intereacted with **Er.kanwardeep Kalra** in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then **JASWINDER SINGH** helped us to clear some basic science concepts with ease and in a fun way. I wan indeed the happiest person in the auditorium as i was invited by him on the stage. He also awrded me a pencil as an award. He told me that he was completely impressed with my knowledge and intelligence. I wan indeed happy to listen this words from a well respected person of our society.
