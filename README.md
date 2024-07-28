@@ -57,8 +57,12 @@ and many more things which helped to evaluate ourself. After him we intereacted 
 ![Screenshot_20240724_211315_Instagram](https://github.com/user-attachments/assets/c7e07397-4491-4ff6-abfe-7e25ade1729d)
 
 
-|**DAY 10**| On the tenth day we had **Mr.gouravdeep Singh** with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the presidnet of india. 
+|**DAY 10**| On the tenth day we had **Mr.gouravdeep Singh** with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the president of india. 
  He shared his inspiring journey and i am pretty sure that if i get a chance to join his initiative i will  go for it. in the afternoon we intereacted with Coordinator **CML**,**Er.Lakhveer Singh** he told us about a portal **SWAYAM** from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there. He completely guided us to form an account on that portal and enroll or join a course. Then after the break we got to learn about the CAUSMIC CLUB of our college and we registered for this club.|
+
+ |**DAY 11**| On the eleventh day we intereacted with DIRECTOR of STEP GNDEC **Dr. ARVIND DHINGRA** He shared his valuable thoughts and knowledge with us. Then we had our chemistry class where **basic of chemisrty were taught to us. Then we had a break and after the break we had our maths test in which some question from differentiability were asked to us in the question.
+
+ |**DAY 12**| On the last and tweleveth day our induction program we firstly had our MEDITATION COUNSELLING by the Homeopathic practitioner **Dr.kanwalpreet Kaur Bhatt**. We were able to dive in the deep sea of meditation state with her guidance. Then we had a program arranged by the cultural committe and it was indeed the best part of our induction program. we enjoyed a lot. There were competition of solo singing and solo dancing. At last i want to say that induction program helped me a lot to learn a lot of things. Induction program helped me to build confidence and helped me to find a way to reach my goal.
 
  
 
