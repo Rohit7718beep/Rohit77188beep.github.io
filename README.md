@@ -47,7 +47,7 @@
 2:- OUR WEAKNESS
 3:- OUR DREAM IN LIFE
 4:- OUR FAVOURITE SPORT
-and many more things which helped to evaluate ourself. After him we intereacted with **Dr.Pushpinder Singh**. After that we were able to talk about sustainbility and we got a good message about sustainbility.|
+and many more things which helped to evaluate ourself. After him we intereacted with **Dr.Pushpinder Singh**. After that we were able to talk about sustainbility and we got a good message about sustainbility.
 
 ![Screenshot_20240724_210743_Instagram](https://github.com/user-attachments/assets/84f84950-101d-4a01-b40d-c61788cc93e5)
 
@@ -58,14 +58,17 @@ and many more things which helped to evaluate ourself. After him we intereacted 
 
 
 |**DAY 10**| On the tenth day we had **Mr.gouravdeep Singh** with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the president of india. 
- He shared his inspiring journey and i am pretty sure that if i get a chance to join his initiative i will  go for it. in the afternoon we intereacted with Coordinator **CML**,**Er.Lakhveer Singh** he told us about a portal **SWAYAM** from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there. He completely guided us to form an account on that portal and enroll or join a course. Then after the break we got to learn about the CAUSMIC CLUB of our college and we registered for this club.|
+ He shared his inspiring journey and i am pretty sure that if i get a chance to join his initiative i will  go for it. in the afternoon we intereacted with Coordinator **CML**,**Er.Lakhveer Singh** he told us about a portal **SWAYAM** from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there. He completely guided us to form an account on that portal and enroll or join a course. Then after the break we got to learn about the CAUSMIC CLUB of our college and we registered for this club.
 
  ![20240723221043_IMG_5156](https://github.com/user-attachments/assets/465d8fb4-c3b6-4e17-b086-cebf725d9249)
 
 
  |**DAY 11**| On the eleventh day we intereacted with DIRECTOR of STEP GNDEC **Dr. ARVIND DHINGRA** He shared his valuable thoughts and knowledge with us. Then we had our chemistry class where **basic of chemisrty were taught to us. Then we had a break and after the break we had our maths test in which some question from differentiability were asked to us in the question.
 
- |**DAY 12**| On the last and tweleveth day our induction program we firstly had our MEDITATION COUNSELLING by the Homeopathic practitioner **Dr.kanwalpreet Kaur Bhatt**. We were able to dive in the deep sea of meditation state with her guidance. Then we had a program arranged by the cultural committe and it was indeed the best part of our induction program. we enjoyed a lot. There were competition of solo singing and solo dancing. At last i want to say that induction program helped me a lot to learn a lot of things. Induction program helped me to build confidence and helped me to find a way to reach my goal.
+ ![Screenshot_20240728_220235_Instagram](https://github.com/user-attachments/assets/f999c077-4a86-49e9-8365-8ec85ef6aa71)
+
+
+ |**DAY 12**| On the last and tweleveth day our induction program we firstly had our MEDITATION COUNSELLING by the Homeopathic practitioner **Dr.kanwalpreet Kaur Bhatt**. We were able to dive in the deep sea of meditation state with her guidance. Then we had a program arranged by the cultural committe and it was indeed the best part of our induction program. we enjoyed a lot. There were competition of solo singing and solo dancing. At last i want to say that induction program helped me a lot to learn a lot of things. Induction program helped me to build confidence and helped me to find a way to reach my goal.|
 
  ![20240725211726_IMG_5601](https://github.com/user-attachments/assets/f026bfb1-4686-4b18-959f-a32e0b28e040)
 
