@@ -47,7 +47,7 @@
 2:- OUR WEAKNESS
 3:- OUR DREAM IN LIFE
 4:- OUR FAVOURITE SPORT
-and many more things which helped to evaluate ourself. After him we intereacted with **Dr.Pushpinder Singh**. After that we were able to talk about sustainbility and we got a good message about sustainbility.|
+and many more things which helped to evaluate ourself. After him we intereacted with **Dr.Pushpinder Singh**. After that we were able to talk about sustainbility and we got a good message about sustainbility. |
 
 ![Screenshot_20240724_210743_Instagram](https://github.com/user-attachments/assets/84f84950-101d-4a01-b40d-c61788cc93e5)
 
