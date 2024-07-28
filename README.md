@@ -67,6 +67,9 @@ and many more things which helped to evaluate ourself. After him we intereacted 
 
  |**DAY 12**| On the last and tweleveth day our induction program we firstly had our MEDITATION COUNSELLING by the Homeopathic practitioner **Dr.kanwalpreet Kaur Bhatt**. We were able to dive in the deep sea of meditation state with her guidance. Then we had a program arranged by the cultural committe and it was indeed the best part of our induction program. we enjoyed a lot. There were competition of solo singing and solo dancing. At last i want to say that induction program helped me a lot to learn a lot of things. Induction program helped me to build confidence and helped me to find a way to reach my goal.
 
+ ![20240725211726_IMG_5601](https://github.com/user-attachments/assets/f026bfb1-4686-4b18-959f-a32e0b28e040)
+
+
  
 
 
